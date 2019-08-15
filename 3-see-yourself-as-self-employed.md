@@ -1,8 +1,10 @@
 # 3. 把自己视作自我雇佣
 > See Yourself as Self-Employed 
 
-我是我灵魂的统帅；我是我命运的主宰。—— WILLIAM HENLEY [1]
+*我是我灵魂的统帅；我是我命运的主宰。—— WILLIAM HENLEY [1]*
 > I am the captain of my soul; I am the master of my fate.  — WILLIAM HENLEY 
+
+---
 
 从现在开始，对你现在和将来的一切都承担完全的、100%的责任。拒绝为自己的问题或缺点而责怪他人。停止抱怨你生活中不开心的事情。不要因为任何事而批评其他人。对自己负责。如果在你生命中有你不喜欢的东西，那就由你来改变它。你说了算。
 > From now on, accept complete, 100 percent responsibility for everything you are and everything you will ever be. Refuse to make excuses or to blame other people for your problems or shortcomings. Stop complaining about things in your life that you are not happy about. Refuse to criticize other people for any- thing. You are responsible. If there is something in your life that you don’t like, it is up to you to change it. You are in charge. 
