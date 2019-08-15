@@ -24,8 +24,8 @@
 
 ---
 
-==行动练习==
->  ==ACTION EXERCISE==
+**行动练习**
+>  **ACTION EXERCISE**
 
 找出你不全心全意实现财务目标的最喜欢的理由和借口。在你的生活中，有没有什么人或事让你停滞不前？无论它是什么，对你的生活负责，今天就行动起来！
 > Identify your favorite reasons and excuses for not committing wholeheartedly to your financial goals. Is there anyone or anything in your life that you are blaming for holding you back? Whatever it might be, accept complete responsibility for your life and take action today!
