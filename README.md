@@ -1,4 +1,4 @@
-# 21 个自我造就百万富翁的成功秘密
+# 自我造就百万富翁的 21 个成功秘诀
 > 21 success secrets of self-made millionaires
 
 目录

@@ -32,4 +32,8 @@ Perhaps the greatest responsibility of adult life, when you are surrounded by so
 **行动练习**
 > **ACTION EXERCISE** 
 
+<<<<<<< HEAD
 Identify the type of work that you enjoy the most. What activities have been most responsible for your success in life to date? If you could do any job at all and be successful at it, what would you choose? Set it as a goal, make a plan, and begin moving in that direction today.
+=======
+Identify the type of work that you enjoy the most. What activities have been most responsible for your success in life to date? If you could do any job at all and be successful at it, what would you choose? Set it as a goal, make a plan, and begin moving in that direction today.
+>>>>>>> 0d0271a9ce9c27c5b393badb64e16e6d7e849ac6
