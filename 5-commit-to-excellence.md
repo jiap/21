@@ -12,7 +12,7 @@
 记住，没有人比你更好，也没有人比你更聪明。现在在前 10% 的人是从倒数 10% 开始的。每个做的好的人曾经也做的很差。每个在他 (她) 领域处于顶峰的人也曾经在另一个领域工作。无数他人已经做过的事，你也可以做到。
 > Remember that no one is better than you, and no one is smarter than you. And everyone who is in the top 10 percent today started off in the bottom 10 percent. Everyone who is doing well was once doing poorly. Everyone who is at the top of his or her field was at one time in another field altogether. And what countless others have done, you can do as well. 
 
-这有个成功的重要规则：当你变得更好时，你的生活才会变的更好。既然你能变多好是没有上限的，那你能让你的生活变得多好也没有上限。
+这有个成功的重要规则：*当你变得更好时，你的生活才会变的更好*。既然你能变多好是没有上限的，那你能让你的生活变得多好也没有上限。
 > Here is a great rule for success: *Your life only gets better when you get better.* And since there is no limit to how much better you can become, there is no limit to how much better you can make your life. 
 
 你决定在你所做的事情上做到卓越，进入所在领域的前10%，这是你人生中的转折点。这是取得巨大成功的关键。这也是高度自尊、自我尊重和个人自豪感的基础。在你真的擅长你所做的事情，你会对自己感到很棒。优秀会影响你的整个性格以及你和他人的关系。当你知道自己是这个领域的佼佼者，你感到快到和自豪。
