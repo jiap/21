@@ -4,4 +4,5 @@
 目录
 
 [3. 把自己视作自我雇佣](https://github.com/jiap/21/blob/master/3-see-yourself-as-self-employed.md)
+[4. 做你热爱做的事](https://github.com/jiap/21/blob/master/4-do-what-you-love-to-do.md)
 
