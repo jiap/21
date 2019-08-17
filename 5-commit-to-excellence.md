@@ -26,8 +26,8 @@
 
 ---
 
-ACTION EXERCISE 
 **行动练习**
+> ACTION EXERCISE 
 
 找到你现有工作的关键结果领域。在你工作中，有哪些方面是你绝对、积极地以优秀的方式表现，才能达到你领域的顶峰。你的优缺点是什么？今天就制定一个计划，在某个最能帮助你的技能领域变得更好。
 > Identify your key result areas in your current job. What are the parts of your work that you must absolutely, positively perform in an excellent fashion to move to the top of your field? Where are you strong and where are you weak? Make a plan today to get better in the one skill area where improvement can help you the most.
