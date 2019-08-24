@@ -21,7 +21,7 @@
 在你职业生涯中，有一个你会问和回答的重要问题：**“如果我成长并以一种卓越的方式做到了这一点，有什么技能会对我的人生产生最积极的影响？”**
 > Here is one of the most important questions you will ever ask and answer, for the rest of your career: **What one skill, if I developed and did it in an excel- lent fashion, would have the greatest positive impact on my life?** 
 
-你不可能立即把每件事做好，但你可以找到一个最能帮助你的技能，然后全身心地投入发展这个技能。设立一个目标，写下来，设置截止时间，制定计划，并每天在该领域变得更好。你绝对会对这种追求卓越的态度给你生活带来的改变感到震惊。这一决心会让在职业生涯中成为自我造就的百万富翁。
+你不可能立即把每件事做好，但你可以找到一个最能帮助你的技能，然后全身心地投入发展这个技能。设立一个目标，写下来，设置截止时间，制定计划，并每天在该领域变得更好。你绝对会对这种追求卓越的态度给你生活带来的改变感到震惊。这一决心会让在职业生涯中成为白手起家的百万富翁。
 > You cannot become good at everything right away, but you can identify the one skill that can help you the most and then throw your whole heart into develop- ing that skill. Set it as a goal. Write it down. Set a deadline. Make a plan. And work on becoming better in that area every single day. You will be absolutely amazed at the difference this commitment to excellence will make in your life. This commitment alone can make you a self-made millionaire in the course of your career.
 
 ---
